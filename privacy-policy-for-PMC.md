@@ -83,3 +83,8 @@ Our Privacy Policy was created with the help of the Privacy Policy Generator.
 
 Contact Us
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.
+Contact Information:
+
+Email: jaitsolution2011@gmail.com
+
+Children's Information Another part of our priority is adding protection for children while using the internet. We encourage parents and guardians to observe, participate in, and/or monitor and guide their online activity. J A iT Solution does not knowingly collect any Personal Identifiable Information from children under the age of 13. If you think that your child provided this kind of information on our website, we strongly encourage you to contact us immediately and we will do our best efforts to promptly remove such information from our records.
