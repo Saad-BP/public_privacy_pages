@@ -1,4 +1,4 @@
-Privacy Policy for J A IT Solution
+Privacy Policy for Pacific Marketing Company (PMC)
 At J A IT Solution, accessible from https://jaisbd.com/, one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by J A IT Solution and how we use it.
 
 If you have additional questions or require more information about our Privacy Policy, do not hesitate to contact us.
